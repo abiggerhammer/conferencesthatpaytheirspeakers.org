@@ -1,0 +1,1 @@
+# conferencesthatpaytheirspeakers.org
